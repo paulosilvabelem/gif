@@ -1,0 +1,2 @@
+# gif
+treinamento e estudos 
